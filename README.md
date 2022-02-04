@@ -1,4 +1,6 @@
-- 👋 Hi, I’m @eastxrn999
-- 🌱 I’m currently learning Java, and Python
-- 💞️ I’m looking to collaborate on Minecraft Client
-- 📫 Discord: Eastern#1337
+Animator
+V 21'08.26 ❤️💍
+1337 loyalty so priceless ❤️‍🔥
+Birthplace: Almost Riyadh 👳🏽‍♂️
+pushin 🅿️ 🇭🇺/🇩🇪
+Birthday: 21 December, 2005
